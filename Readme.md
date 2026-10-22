@@ -1,0 +1,3 @@
+parasha
+gavno
+dermishe
